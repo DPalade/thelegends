@@ -1,2 +1,2 @@
 # thelegends
-The legends panel
+Hei, vb mai altfel pls
